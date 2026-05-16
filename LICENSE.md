@@ -1,4 +1,4 @@
-
+vip Goose VPN Addon | torrenting-support + P2P-support offers the most advanced Goose VPN addon, with torrenting-support and P2P-support. Ideal for users who value privacy and
 
 
 
